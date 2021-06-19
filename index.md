@@ -1,1 +1,1 @@
-<img width="1488" alt="CURLY-FATTUESDAYS" src="https://user-images.githubusercontent.com/85958762/122654900-6775e080-d11c-11eb-84d4-3f20c2cf8287.png">
+<img width="1277" alt="CURLY FATS" src="https://user-images.githubusercontent.com/85958762/122655722-a27b1280-d122-11eb-8efc-6957ea13b5c6.png">
